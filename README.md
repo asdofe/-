@@ -42,8 +42,8 @@
 
 正在看
 ---
-1. 冰菓(推薦)
-1. 我的英雄學院 4
+1. [冰菓](https://www.youtube.com/playlist?list=PL12UaAf_xzfpKB3uUvYYbxg3UBOxBZfDl)(推薦)
+1. [我的英雄學院 4](https://ani.gamer.com.tw/animeVideo.php?sn=13846)
 1. 高分少女 2
 1. 天元突破
 1. 動物朋友(胃痛)
