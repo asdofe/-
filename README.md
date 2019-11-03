@@ -23,7 +23,6 @@
 1. 三月的獅子(胃痛)
 1. 冰果(京阿尼)
 1. 來自新世界(胃痛)
-1. 惡魔人(胃痛)
 1. 我想吃掉你的胰臟(片名)
 1. 命運石之門(胃痛)
 1. 可塑記憶(胃痛)
@@ -42,7 +41,8 @@
 
 正在看
 ---
-1. [冰菓](https://www.youtube.com/playlist?list=PL12UaAf_xzfpKB3uUvYYbxg3UBOxBZfDl)(推薦)
+1. 惡魔人(胃痛)
+1. [冰菓(被推薦)](https://www.youtube.com/playlist?list=PL12UaAf_xzfpKB3uUvYYbxg3UBOxBZfDl)
 1. [我的英雄學院 4](https://ani.gamer.com.tw/animeVideo.php?sn=13846)
 1. 高分少女 2
 1. 天元突破
