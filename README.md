@@ -19,7 +19,6 @@
 1. 絲襪視界(丸戶史明)
 1. 擅長捉弄人的高木同學(熱門)
 1. 五等分的新娘(熱門)
-1. [男子高校生的日常](https://www.youtube.com/playlist?list=PL12UaAf_xzfojefQl6EuqrnlyEZNdoFrz)(嗑藥)
 1. 未聞花名(胃痛)
 1. 四月是你的謊言(胃痛)
 1. 來自風平浪靜的明日(胃痛)
@@ -44,8 +43,8 @@
 
 正在看
 ---
+1. [男子高校生的日常](https://www.youtube.com/playlist?list=PL12UaAf_xzfojefQl6EuqrnlyEZNdoFrz)(嗑藥)
 1. 皿三昧（幾原邦彥）
-1. [女高中生的虛度日常](https://www.youtube.com/playlist?list=PL12UaAf_xzfpb1Ol0HM8VurDLKBKHeeeM)(嗑藥)
 1. [我的英雄學院 4](https://ani.gamer.com.tw/animeVideo.php?sn=13846)
 1. 高分少女 2
 1. 天元突破
@@ -53,6 +52,8 @@
 
 已看完
 ---
+1. [女高中生的虛度日常](https://www.youtube.com/playlist?list=PL12UaAf_xzfpb1Ol0HM8VurDLKBKHeeeM)(嗑藥)
+    - 也是套路系的，就是幾個偏執狂加上中二病妹子，這種校園喜劇套路大概都不會太難看，我個人覺得還好而已，嘴角完全不會失守，我比較喜歡齊木楠雄和遊戲三人娘一點。
 1. [冰菓(被推薦)](https://www.youtube.com/playlist?list=PL12UaAf_xzfpKB3uUvYYbxg3UBOxBZfDl)
     - 一如京阿尼作品一貫的風格，把高中生活經營的閃閃動人令人嚮往是他們的強項，透過一些微小伏筆的安插，讓仔細觀賞的觀眾們常常會有意想不到的驚喜，或許不是大時代大畫面的故事背景，但由平淡的故事之中體現出來得小小幸福卻也是可以讓人意猶未竟的。沒錯，這部看完的確是相當的平淡，數度想要把它關掉，但又經常會出奇不易的吊人家胃口，以解謎為主軸的作品交織著一些莫名其妙的人物設定其實是比想像中有趣的。無聊的時候就靠甜爆的千反田醬稍微撐一下囉，黑長直總是不會讓人失望了。
 1. 漢娜的遺言 第一季(美劇)
