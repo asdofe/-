@@ -51,6 +51,8 @@
 
 已看完
 ---
+1. 銀之匙
+    - 牛媽真的是專業鋪梗和賺人熱淚專門啊，太青春且精彩，又深富哲理，連我都想回去種田啦。
 1. [女高中生的虛度日常](https://www.youtube.com/playlist?list=PL12UaAf_xzfpb1Ol0HM8VurDLKBKHeeeM)(嗑藥)
     - 也是套路系的，就是幾個偏執狂加上中二病妹子，這種校園喜劇套路大概都不會太難看，我個人覺得還好而已，嘴角完全不會失守，我比較喜歡齊木楠雄和遊戲三人娘一點。
 1. [冰菓(被推薦)](https://www.youtube.com/playlist?list=PL12UaAf_xzfpKB3uUvYYbxg3UBOxBZfDl)
